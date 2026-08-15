@@ -12,3 +12,5 @@ $${\color{red}\ ୭⋆*｡\color{gray}\ 𝓦𝓱𝓲𝓼𝓹𝓮𝓻\ 𝓽𝓸\ 
   <p align="center">
 $${\color{red}\  ݁₊ ⊹\color{gray}\ 𝓐𝓷𝔂\ 𝓼𝓱𝓲𝓹𝓼\ 𝓲𝓼\ 𝓯𝓲𝓷𝓮\color{red}\ . ݁ ⟡ ݁ .\color{gray} \ 𝓮𝓿𝓮𝓷\ 𝓸𝓬\ 𝓪𝓷𝓭\ 𝓬𝓬\color{red}\ ⊹ ₊ ݁.}$$ 
 </p>
+
+![1000095066](https://github.com/user-attachments/assets/93fc4e77-32da-41b7-a61b-4ffa859bb0c4) 
