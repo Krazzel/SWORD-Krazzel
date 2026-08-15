@@ -61,3 +61,4 @@ $${\color{red}\ ->\color{gray}\ 𝓚𝓲𝓶𝓲\ 𝓖𝓪\ 𝓢𝓱𝓲𝓷𝓮
 <p align="center">
 $${\color{red}\ ->\color{gray}\ 𝓜𝓪𝓷𝔂\ 𝓶𝓸𝓻𝓮\ 𝓵𝓸𝓵}$$ 
 </p>
+<img width="1000" height="600" alt="conclusion" src="https://github.com/user-attachments/assets/0bad7f92-2337-4895-93e6-a3cc1526beaf" />
