@@ -15,7 +15,7 @@ $${\color{red}\ ABOUT/ ME}$$
 </p>
 
 <p align="center">
-$${\color{red}\ *⋆\color{gray}\ 17\ 𝔂𝓮𝓪𝓻𝓼\ 𝓸𝓵𝓭\color{red}\ ༺\color{gray}\ 𝓪𝓷𝔂\ 𝓹𝓻𝓸𝓷𝓸𝓾𝓷𝓼\color{red}\ 𓆩⚔𓆪\color{gray}\ 𝓢𝔀𝓸𝓻𝓭\ 𝓕𝓪𝓷!\color{red}\ ༻⋆}$$ 
+$${\color{red}\ *⋆\color{gray}\ 18\ 𝔂𝓮𝓪𝓻𝓼\ 𝓸𝓵𝓭\color{red}\ ༺\color{gray}\ 𝓪𝓷𝔂\ 𝓹𝓻𝓸𝓷𝓸𝓾𝓷𝓼\color{red}\ 𓆩⚔𓆪\color{gray}\ 𝓢𝔀𝓸𝓻𝓭\ 𝓕𝓪𝓷!\color{red}\ ༻⋆}$$ 
 </p>
 
 <p align="center">
